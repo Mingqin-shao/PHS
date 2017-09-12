@@ -6,5 +6,3 @@ sdhhds  da
 ysugad djkad
 
 2017 09.12
- add new changes in branch hap
- 
