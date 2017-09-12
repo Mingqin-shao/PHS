@@ -1,3 +1,7 @@
 # PHS
 Wheat pre-harvesting resistance QTL mapping and TaPHS1 haplotype analysis
 
+sdhhds  da  
+
+ysugad djkad
+
